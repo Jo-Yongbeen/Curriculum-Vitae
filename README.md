@@ -46,13 +46,13 @@
 - <strong>2021. 03. ~ 2021. 12.</strong>  
   H-JUMP SCHOOL Scholar, Hyundai Motor Group, Republic of Korea
 - <strong>2021. 12.</strong>  
-  First Place Award, Undergraduate Paper Presentation Competition at the 2021 Winter Conference of the Korean Agricultural Economics Association(KAEA)
+  First Place Award, Undergraduate Paper Presentation Competition at the 2021 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 09.</strong>  
   First Place Award, Poster Presentation at the 2022 Research Day of the College of Agricultural and Life Sciences, Kangwon National University, Republic of Korea
 - <strong>2022. 12.</strong>  
-  Second Place Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association(KAEA)
+  Second Place Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 11.</strong>  
-  Merit Award, the 6th Food Information Statistics System(FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation(aT), Republic of Korea
+  Merit Award, the 6th Food Information Statistics System(FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation(aT), Republic of Korea
 - <strong>2022. 12.</strong>  
   Excellence Award(Individual Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University, Republic of Korea
 - <strong>2022. 12.</strong>  
