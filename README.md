@@ -18,9 +18,9 @@
 
 ## Education
 - <strong>2020. 03. ~ 2024. 02.</strong>  
-  Bachelor of Economics(Second Highest Honors), Agricultural and Resource Economics, Kangwon National University, Republic of Korea
+  Bachelor of Economics(Second Highest Honors), Agricultural and Resource Economics, Kangwon National University, Republic of Korea (Advisor: Ji-Yong Lee)
 - <strong>2024. 03. ~</strong>  
-  Master's student, Agricultural and Resource Economics, Kangwon National University, Republic of Korea
+  Master's student, Agricultural and Resource Economics, Kangwon National University, Republic of Korea (Advisor: Ji-Yong Lee)
 
 <br><br>
 
@@ -83,19 +83,17 @@
 <br><br>
 
 ## Presentation Materials
-- <strong>2023. 07. 13-14.</strong>  
+- <strong>2023. 07.</strong>  
   Yeonggyun Kim, Yongbeen Jo, Hyunsung Park, Yongin Cho, Youngjune Kim, Jiyong Lee. (2023). Can we trust organic certification? The effect of Certification credibility to increase organic food consumption. _2023 Summer Academic Conference of the Korean Food Marketing Association_, Busan, Republic of Korea. [https://papersearch.net/thesis/article.asp?key=4035471](https://papersearch.net/thesis/article.asp?key=4035471)
 
 <br><br>
 
 ## Extra Activities
 - <strong>2022. 03. ~ 2024. 02.</strong>  
-  62nd Cadet Candidate, Reserve Officers' Training Corps (ROTC) at Kangwon National University, Republic of Korea Army
+  62nd Cadet Candidate, Reserve Officers' Training Corps(ROTC) at Kangwon National University, Republic of Korea Army
 - <strong>2022. 09. ~ 2024. 02.</strong>  
-  Legal Protection Officer, Ministry of Justice, Republic of Korea
+  Legal Protection Committee Member, Ministry of Justice, Republic of Korea
 - <strong>2023. 04. ~ 2023. 12.</strong>  
-  38th Student Council President, Agricultural and Resource Economics at Kangwon National University
-- <strong>2024. 03. ~ 2026. 06.</strong>  
-  Officer, Republic of Korea Army Artillery (Second lieutenant, Lieutenant)
+  38th President of the Student Council, Department of Agricultural and Resource Economics, Kangwon National University, Republic of Korea
 - <strong>2024. 07. ~ 2025. 06.</strong>  
-  Second lieutenant in the field artillery, Republic of Korea Army Artillery (Forward Observer)
+  Second lieutenant, Unit 3287, Republic of Korea Army Artillery(Forward Observer)
