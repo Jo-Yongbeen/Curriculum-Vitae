@@ -26,39 +26,41 @@
 
 ## Professional Organizations
 - <strong>2023. 10. ~</strong>  
-  Associate Member, Korea Academia-Industrial Cooperation Society (KAIS)
+  Associate Member, Korea Academia-Industrial Cooperation Society(KAIS)
 - <strong>2024. 06. ~</strong>  
-  Full Member, Korean Agricultural Economics Association (KAEA)
+  Full Member, Korean Agricultural Economics Association(KAEA)
 
 <br><br>
 
 ## Field-Related Activities
 - <strong>2021. 05. ~ 2021. 12.</strong>  
-  Administrative Assistant, KNU-KOICA Master’s Degree Scholarship Program in Agricultural Economics at Kangwon National University
+  Administrative Assistant, KNU-KOICA Master’s Degree Scholarship Program in Agricultural Economics, Kangwon National University, Republic of Korea
 - <strong>2022. 03. ~ 2023. 07.</strong>  
-  Teaching Assistant, Agricultural and Resource Economics at Kangwon National University
+  Teaching Assistant, Agricultural and Resource Economics, Kangwon National University, Republic of Korea
 
 <br><br>
 
 ## Honors & Awards
 - <strong>2020. 09. ~ 2021. 12.</strong>  
-  Agrifood Talent Scholarship Recipient, Ministry of Agriculture, Food and Rural Affairs, Republic of Korea
+  Agrifood Talent Scholar, Ministry of Agriculture, Food and Rural Affairs, Republic of Korea
 - <strong>2021. 03. ~ 2021. 12.</strong>  
-  H-JUMPSCHOOL Scholarship Recipient, Hyundai Motor Group, Republic of Korea
+  H-JUMP SCHOOL Scholar, Hyundai Motor Group, Republic of Korea
 - <strong>2021. 12.</strong>  
-  Best (1st) Award, Undergraduate Paper Presentation Competition at the 2021 Winter Conference of the Korean Agricultural Economics Association (KAEA)
+  First Place Award, Undergraduate Paper Presentation Competition at the 2021 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 09.</strong>  
-  Best (1st) Award, Poster Presentation at the 2022 Research Day of the College of Agricultural and Life Sciences, Kangwon National University
+  First Place Award, Poster Presentation at the 2022 Research Day of the College of Agricultural and Life Sciences, Kangwon National University, Republic of Korea
 - <strong>2022. 12.</strong>  
-  Outstanding (2nd) Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association (KAEA)
+  Second Place Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 11.</strong>  
-  Encouragement Award, the 6th Food Information Statistics System (FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation (aT), Republic of Korea
+  Merit Award, the 6th Food Information Statistics System(FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation(aT), Republic of Korea
 - <strong>2022. 12.</strong>  
-  Outstanding Award (Individual Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University
+  Excellence Award(Individual Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University, Republic of Korea
 - <strong>2022. 12.</strong>  
-  Outstanding Award (Team Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University
+  Excellence Award(Team Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University, Republic of Korea
 - <strong>2023. 10.</strong>  
-  Best (2nd) Award, Poster Presentation at the 2023 Research Day of the College of Agricultural and Life Sciences, Kangwon National University
+  Second Place Award, Poster Presentation at the 2023 Research Day of the College of Agricultural and Life Sciences, Kangwon National University, Republic of Korea
+- <strong>2024. 11.</strong>  
+  Commendation(For Outstanding Contribution to Complete Surveillance Operation of Guard Post(GP)), the Battalion Commander of the GOP(General Outpost), 36th Infantry Brigade, 5th Infantry Division, Republic of Korea Army
 
 <br><br>
 
