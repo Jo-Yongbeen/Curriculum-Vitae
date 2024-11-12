@@ -66,7 +66,7 @@
 
 ## Research Involvement
 - <strong>2023. 04. ~ 2023. 12.</strong>  
-  Student Researcher, Integrated management of surface soil environment with tracking and prediction technology (Project No. on ntis.go.kr: 1485019310)
+  Student Researcher, Integrated management of surface soil environment with tracking and prediction technology(Project No. on ntis.go.kr: 1485019310)
 
 <br><br>
 
