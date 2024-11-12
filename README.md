@@ -7,7 +7,7 @@
 
 ## Current Position
 - <strong>Second lieutenant</strong>, Republic of Korea Army Artillery
-- <strong>Master's student</strong>, Agricultural and Resource Economics at Kangwon National University, Republic of Korea
+- <strong>Master's student</strong>, Agricultural and Resource Economics, Kangwon National University, Republic of Korea
 
 <br><br>
 
@@ -18,9 +18,9 @@
 
 ## Education
 - <strong>2020. 03. ~ 2024. 02.</strong>  
-  Bachelor of Economics (Salutatorian), Agricultural and Resource Economics at Kangwon National University, Republic of Korea
+  Bachelor of Economics(Second Highest Honors), Agricultural and Resource Economics, Kangwon National University, Republic of Korea
 - <strong>2024. 03. ~</strong>  
-  Master's student, Agricultural and Resource Economics at Kangwon National University, Republic of Korea
+  Master's student, Agricultural and Resource Economics, Kangwon National University, Republic of Korea
 
 <br><br>
 
