@@ -95,7 +95,7 @@
   Legal Protection Committee Member, Ministry of Justice, Republic of Korea
 - <strong>2023. 04. ~ 2023. 12.</strong>  
   the 38th President of the Student Council, Agricultural and Resource Economics, Kangwon National University, Republic of Korea
-  - <strong>2024. 03. ~ 2024. 06.</strong>  
+- <strong>2024. 03. ~ 2024. 06.</strong>  
   Cadet (Second lieutenant), Officer Basic Course, Artillery School, Republic of Korea Army
 - <strong>2024. 07. ~ 2025. 06.</strong>  
   Forward Observer (Second lieutenant), Unit 3287, Republic of Korea Army
