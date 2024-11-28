@@ -90,7 +90,7 @@
 
 ## Extra Activities
 - <strong>2022. 03. ~ 2024. 02.</strong>  
-  62nd Cadet Candidate, Reserve Officers' Training Corps(ROTC) at Kangwon National University, Republic of Korea Army
+  The 62nd Cadet, Reserve Officers' Training Corps(ROTC) at Kangwon National University, Republic of Korea Army
 - <strong>2022. 09. ~ 2024. 02.</strong>  
   Legal Protection Committee Member, Ministry of Justice, Republic of Korea
 - <strong>2023. 04. ~ 2023. 12.</strong>  
