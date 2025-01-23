@@ -60,7 +60,9 @@
 - <strong>2023. 10.</strong>  
   Second Place Award, Poster Presentation at the 2023 Research Day of the College of Agricultural and Life Sciences, Kangwon National University, Republic of Korea
 - <strong>2024. 11.</strong>  
-  Commendation(For Outstanding Contribution to Complete Surveillance Operation of Guard Post(GP)), the Battalion Commander of the GOP(General Outpost), 36th Infantry Brigade, 5th Infantry Division, Republic of Korea Army
+  Commendation (For Outstanding Contribution to Complete Surveillance Operation of Guard Post(GP)), Unit 7895-201, Republic of Korea Army
+- <strong>2024. 12.</strong>  
+  Commendation (For Meritorious Service), Unit 3287, Republic of Korea Army
 
 <br><br>
 
