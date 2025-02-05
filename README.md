@@ -28,7 +28,11 @@
 - <strong>2023. 10. ~</strong>  
   Associate Member, Korea Academia-Industrial Cooperation Society(KAIS)
 - <strong>2024. 06. ~</strong>  
-  Full Member, Korean Agricultural Economics Association(KAEA)
+  Associate Member, Korean Agricultural Economics Association(KAEA)
+- <strong>2025. 02. ~</strong>  
+  Associate Member, Korean Food Marketing Association(KFMA)
+- <strong>2025. 02. ~</strong>  
+  Full Member, The Korean Association of Agricultural and Food Policy(KAAFP)
 
 <br><br>
 
@@ -100,4 +104,6 @@
 - <strong>2024. 03. ~ 2024. 06.</strong>  
   Cadet (Second lieutenant), Officer Basic Course, Artillery School, Republic of Korea Army
 - <strong>2024. 07. ~ 2025. 06.</strong>  
-  Forward Observer (Second lieutenant), Unit 3287, Republic of Korea Army
+  Forward Observer, Field Artillery & Guard Post(GP) (Second lieutenant ~ lieutenant), Unit 3287, Republic of Korea Army
+- <strong>2024. 07. ~ 2025. 06.</strong>  
+  Training Simulation Forward Observation(TSFO) Instructor (Second lieutenant ~ lieutenant), Unit 3287, Republic of Korea Army
