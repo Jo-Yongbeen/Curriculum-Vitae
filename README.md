@@ -104,6 +104,6 @@
 - <strong>2024. 03. ~ 2024. 06.</strong>  
   Cadet (Second lieutenant), Officer Basic Course, Artillery School, Republic of Korea Army
 - <strong>2024. 07. ~ 2025. 06.</strong>  
-  Forward Observer, Field Artillery & Guard Post(GP) (Second lieutenant ~ lieutenant), Unit 3287, Republic of Korea Army
+  Forward Observer, Field Artillery & Guard Post(GP) (Second lieutenant ~ Lieutenant), Unit 3287, Republic of Korea Army
 - <strong>2024. 07. ~ 2025. 06.</strong>  
-  Training Simulation Forward Observation(TSFO) Instructor (Second lieutenant ~ lieutenant), Unit 3287, Republic of Korea Army
+  Training Simulation Forward Observation(TSFO) Instructor (Second lieutenant ~ Lieutenant), Unit 3287, Republic of Korea Army
