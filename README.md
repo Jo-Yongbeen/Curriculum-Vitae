@@ -6,7 +6,7 @@
 <br><br><br><br><br><br><br>
 
 ## Current Position
-- <strong>Second lieutenant</strong>, Republic of Korea Army Artillery
+- <strong>Lieutenant</strong>, Republic of Korea Army Artillery
 - <strong>Master's student</strong>, Agricultural and Resource Economics, Kangwon National University, Republic of Korea
 
 <br><br>
