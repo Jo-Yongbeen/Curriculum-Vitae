@@ -76,7 +76,7 @@
 
 ## Works in Progress
 - <strong>2025. 06. ~</strong>  
-  The Effect of FAFF Fund of Funds Investments on Farm Household Income: Evidence from a Mediation Analysis, co-author
+  The Effect of FAFF Fund of Funds Investments on Farm Household Income: Evidence from a Mediation Analysis (co-author)
   
 <br><br>
 
