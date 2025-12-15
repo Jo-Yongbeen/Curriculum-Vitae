@@ -70,7 +70,7 @@
 - <strong>2025. 08.</strong>  
   Commendation (For Contribution to Guard Post(GP)/General Outpost(GOP) Ongoing Operations), 5th Infantry Division, Republic of Korea Army
 - <strong>2025. 12.</strong>  
-  Third Place Award — Agricultural Policy Insurance & Finance Service(APFS) Food, Agriculture, Forestry, and Fishery(FAFF) Fund of Funds Paper Competition, Ministry of Agriculture, Food and Rural Affairs(MAFRA), Republic of Korea
+  Third Place Award, Agricultural Policy Insurance & Finance Service(APFS) Food, Agriculture, Forestry, and Fishery(FAFF) Fund of Funds Paper Competition, Ministry of Agriculture, Food and Rural Affairs(MAFRA), Republic of Korea
   
 <br><br>
 
