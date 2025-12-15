@@ -28,7 +28,7 @@
 - <strong>2023. 10. ~</strong>  
   Associate Member, Korea Academia-Industrial Cooperation Society(KAIS)
 - <strong>2024. 06. ~</strong>  
-  Associate Member, Korean Agricultural Economics Association(KAEA)
+  Life Member, Korean Agricultural Economics Association(KAEA)
 - <strong>2025. 02. ~</strong>  
   Associate Member, Korean Food Marketing Association(KFMA)
 - <strong>2025. 02. ~</strong>  
@@ -48,7 +48,7 @@
 - <strong>2020. 09. ~ 2021. 12.</strong>  
   Agrifood Talent Scholar, Ministry of Agriculture, Food and Rural Affairs, Republic of Korea
 - <strong>2021. 03. ~ 2021. 12.</strong>  
-  H-JUMP SCHOOL Scholar, Hyundai Motor Group, Republic of Korea
+  H-JUMPSCHOOL Scholar, Hyundai Motor Group, Republic of Korea
 - <strong>2021. 12.</strong>  
   First Place Award, Undergraduate Paper Presentation Competition at the 2021 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 09.</strong>  
@@ -56,7 +56,7 @@
 - <strong>2022. 12.</strong>  
   Second Place Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 11.</strong>  
-  Merit Award, the 6th Food Information Statistics System(FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation(aT), Republic of Korea
+  Third Place Award, the 6th Food Information Statistics System(FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation(aT), Republic of Korea
 - <strong>2022. 12.</strong>  
   Excellence Award (Individual Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University, Republic of Korea
 - <strong>2022. 12.</strong>  
@@ -67,7 +67,17 @@
   Commendation (For Outstanding Contribution to Complete Surveillance Operation of Guard Post(GP)), Unit 7895-201, Republic of Korea Army
 - <strong>2024. 12.</strong>  
   Commendation (For Meritorious Service), Unit 3287, Republic of Korea Army
+- <strong>2025. 08.</strong>  
+  Commendation (For Contribution to Guard Post(GP)/General Outpost(GOP) Ongoing Operations), 5th Infantry Division, Republic of Korea Army
+- <strong>2025. 12.</strong>  
+  Third Place Award — Agricultural Policy Insurance & Finance Service(APFS) Food, Agriculture, Forestry, and Fishery(FAFF) Fund of Funds Paper Competition, Ministry of Agriculture, Food and Rural Affairs(MAFRA), Republic of Korea
+  
+<br><br>
 
+## Works in Progress
+- <strong>2025. 06. ~</strong>  
+  The Effect of FAFF Fund of Funds Investments on Farm Household Income: Evidence from a Mediation Analysis, co-author
+  
 <br><br>
 
 ## Research Involvement
@@ -107,3 +117,5 @@
   Forward Observer, Field Artillery & Guard Post(GP) (Second lieutenant ~ First lieutenant), Unit 3287, Republic of Korea Army
 - <strong>2024. 07. ~ 2025. 06.</strong>  
   Training Simulation Forward Observation(TSFO) Instructor (Second lieutenant ~ First lieutenant), Unit 3287, Republic of Korea Army
+- <strong>2025. 04. ~ 2025. 05.</strong>  
+  Unmanned Aerial Vehicle(UAV) Target Acquisition Officer (First lieutenant), KCTC(Korea Combat Training Center), Unit 8260, Republic of Korea Army
