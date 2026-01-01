@@ -88,19 +88,19 @@
 
 ## Issued Materials
 - <strong>2022. 07.</strong>  
-  Gyeong-Han Lee, Hye-Won Lee, Yong-Been Jo, Yun-Mi Hwang, Ji-Yong Lee. (2022). Perception and Willingness of Gangwon Rice Farmers to use Bio-Char as a Substitute to Lime Manure. _Journal of Agricultural, Life and Environmental Sciences_, 34(2), 160-171. (co-first author, KCI) [https://doi.org/10.22698/jales.20220017](https://doi.org/10.22698/jales.20220017)
+  Gyeong-Han Lee, Hye-Won Lee, Yong-Been Jo, Yun-Mi Hwang, Ji-Yong Lee. (2022). Perception and Willingness of Gangwon Rice Farmers to use Bio-Char as a Substitute to Lime Manure. _Journal of Agricultural, Life and Environmental Sciences_, 34(2), 160-171. (co-first author, KCI) <br>[https://doi.org/10.22698/jales.20220017](https://doi.org/10.22698/jales.20220017)
 - <strong>2023. 12.</strong>  
-  Yongbeen Jo, Younggyun Kim, Taemin Kim, Jihee Ha, JiYong Lee. (2023). The Effect of Fine Dust Concentration on Changes in Fresh Agrifood Consumption. _Journal of Rural Development_, 46(4): 21-41. (first author, KCI) [https://dx.doi.org/10.36464/jrd.2023.46.4.002](https://dx.doi.org/10.36464/jrd.2023.46.4.002)
+  Yongbeen Jo, Younggyun Kim, Taemin Kim, Jihee Ha, JiYong Lee. (2023). The Effect of Fine Dust Concentration on Changes in Fresh Agrifood Consumption. _Journal of Rural Development_, 46(4): 21-41. (first author, KCI) <br>[https://dx.doi.org/10.36464/jrd.2023.46.4.002](https://dx.doi.org/10.36464/jrd.2023.46.4.002)
 - <strong>2024. 01.</strong>  
-  Yong-Been Jo, Young-Gyun Kim, Eun-Hak Lee, Gyeong-Han Lee, Ji-Yong Lee, Se-Hwa Lim, Sung-Won Jang. (2024). Analysis of Willingness to Pay for Low-Carbon Agrifood for Sustainable Agriculture: The Case of the 20s. _Journal of the Korea Academia-Industrial cooperation Society_, 25(1), 172-183. (first author, KCI) [https://doi.org/10.5762/KAIS.2024.25.1.172](https://doi.org/10.5762/KAIS.2024.25.1.172)
+  Yong-Been Jo, Young-Gyun Kim, Eun-Hak Lee, Gyeong-Han Lee, Ji-Yong Lee, Se-Hwa Lim, Sung-Won Jang. (2024). Analysis of Willingness to Pay for Low-Carbon Agrifood for Sustainable Agriculture: The Case of the 20s. _Journal of the Korea Academia-Industrial cooperation Society_, 25(1), 172-183. (first author, KCI) <br>[https://doi.org/10.5762/KAIS.2024.25.1.172](https://doi.org/10.5762/KAIS.2024.25.1.172)
 - <strong>2024. 03.</strong>  
-  Yong Been Jo, Yeong Gyun Kim, Hyun Sung Park, Yong In Cho, Youngjune Kim, Ji Yong Lee. (2024). The Effect of Certification Credibility on Organic Processed Food Consumption. _The Korean Journal of Agricultural Economics_, 65(1), 1-22. (first author, KCI) [https://doi.org/10.24997/KJAE.2024.65.1.1](https://doi.org/10.24997/KJAE.2024.65.1.1)
+  Yong Been Jo, Yeong Gyun Kim, Hyun Sung Park, Yong In Cho, Youngjune Kim, Ji Yong Lee. (2024). The Effect of Certification Credibility on Organic Processed Food Consumption. _The Korean Journal of Agricultural Economics_, 65(1), 1-22. (first author, KCI) <br>[https://doi.org/10.24997/KJAE.2024.65.1.1](https://doi.org/10.24997/KJAE.2024.65.1.1)
 
 <br><br>
 
 ## Presentation Materials
 - <strong>2023. 07.</strong>  
-  Yeonggyun Kim, Yongbeen Jo, Hyunsung Park, Yongin Cho, Youngjune Kim, Jiyong Lee. (2023). Can we trust organic certification? The effect of Certification credibility to increase organic food consumption. _2023 Summer Academic Conference of the Korean Food Marketing Association_, Busan, Republic of Korea. [https://papersearch.net/thesis/article.asp?key=4035471](https://papersearch.net/thesis/article.asp?key=4035471)
+  Yeonggyun Kim, Yongbeen Jo, Hyunsung Park, Yongin Cho, Youngjune Kim, Jiyong Lee. (2023). Can we trust organic certification? The effect of Certification credibility to increase organic food consumption. _2023 Summer Academic Conference of the Korean Food Marketing Association_, Busan, Republic of Korea. <br>[https://papersearch.net/thesis/article.asp?key=4035471](https://papersearch.net/thesis/article.asp?key=4035471)
 
 <br><br>
 
