@@ -71,7 +71,9 @@
   Commendation (For Contribution to Guard Post(GP)/General Outpost(GOP) Ongoing Operations), 5th Infantry Division, Republic of Korea Army
 - <strong>2025. 12.</strong>  
   Third Place Award, Food, Agriculture, Forestry, and Fishery(FAFF) Fund of Funds Paper Competition, Agricultural Policy Insurance & Finance Service(APFS), Republic of Korea
-  
+- <strong>2025. 12.</strong>  
+  Commendation (For Meritorious Service), Unit 7895, Republic of Korea Army
+
 <br><br>
 
 ## Works in Progress
@@ -119,3 +121,5 @@
   Training Simulation Forward Observation(TSFO) Instructor (Second lieutenant ~ First lieutenant), Unit 3287, Republic of Korea Army
 - <strong>2025. 04. ~ 2025. 05.</strong>  
   Unmanned Aerial Vehicle(UAV) Target Acquisition Officer (First lieutenant), KCTC(Korea Combat Training Center), Unit 8260, Republic of Korea Army
+- <strong>2026. 03.</strong>  
+  High-Value Targeting Officer (First lieutenant), Current Operations Cell (G-3), Freedom Shield (FS) Exercise, 5th Corps, Republic of Korea Army
