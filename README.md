@@ -53,10 +53,10 @@
   First Place Award, Undergraduate Paper Presentation Competition at the 2021 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 09.</strong>  
   First Place Award, Poster Presentation at the 2022 Research Day of the College of Agricultural and Life Sciences, Kangwon National University, Republic of Korea
-- <strong>2022. 12.</strong>  
-  Second Place Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 11.</strong>  
   Third Place Award, the 6th Food Information Statistics System(FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation(aT), Republic of Korea
+- <strong>2022. 12.</strong>  
+  Second Place Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association(KAEA)
 - <strong>2022. 12.</strong>  
   Excellence Award (Individual Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University, Republic of Korea
 - <strong>2022. 12.</strong>  
@@ -123,3 +123,12 @@
   Unmanned Aerial Vehicle(UAV) Target Acquisition Officer (First lieutenant), KCTC(Korea Combat Training Center), Unit 8260, Republic of Korea Army
 - <strong>2026. 03.</strong>  
   High-Value Targeting Officer (First lieutenant), Current Operations Cell (G-3), Freedom Shield (FS) Exercise, 5th Corps, Republic of Korea Army
+
+<br><br>
+
+## Related Links
+- (Award / 2021. 12.) First Place Award, Undergraduate Paper Presentation Competition at the 2021 Winter Conference of the Korean Agricultural Economics Association(KAEA) - [University News Feature](https://wwwk.kangwon.ac.kr/www/selectBbsNttView.do?key=100&bbsNo=249&nttNo=149989&searchCtgry=&searchCnd=ADITFIELD1&searchKrwd=%EB%86%8D%EC%97%85%EC%9E%90%EC%9B%90&pageIndex=1) / [Department News Feature](https://agecon.kangwon.ac.kr/agecon/community/gallery.do?mode=view&articleNo=360348&article.offset=36&articleLimit=6)
+- (Award / 2022. 11.) Third Place Award, the 6th Food Information Statistics System(FIS)-based Food and Dining Industry Paper Competition, Korea Agro-Fisheries & Food Trade Corporation(aT), Republic of Korea - [Department News Feature](https://agecon.kangwon.ac.kr/agecon/community/gallery.do?mode=view&articleNo=395747&article.offset=30&articleLimit=6) / [News Article](https://www.pressian.com/pages/articles/2022112212222979728?utm_source=naver&utm_medium=search) / [Naver News Article](https://n.news.naver.com/mnews/article/002/0002267026?sid=102)
+- (Award / 2022. 12.) Second Place Award, Undergraduate Paper Presentation Competition at the 2022 Winter Conference of the Korean Agricultural Economics Association(KAEA) - [Department News Feature](https://agecon.kangwon.ac.kr/agecon/community/gallery.do?mode=view&articleNo=397973&article.offset=30&articleLimit=6)
+- (Award / 2022. 12.) Excellence Award (Individual & Team Division), the Agricultural College Future Professional Agricultural Management Program, Kangwon National University, Republic of Korea - [News Article](https://www.lecturernews.com/news/articleView.html?idxno=114150)
+- (Award / 2025. 12.) Third Place Award, Food, Agriculture, Forestry, and Fishery(FAFF) Fund of Funds Paper Competition, Agricultural Policy Insurance & Finance Service(APFS), Republic of Korea - [Department News Feature](https://agecon.kangwon.ac.kr/agecon/community/gallery.do?mode=view&articleNo=546639&article.offset=0&articleLimit=6) / [News Article](https://www.hankyung.com/article/2025122316731) / [Naver News Article](https://n.news.naver.com/mnews/article/015/0005228395?sid=101) / [Official Video](https://youtu.be/4NijKhhJ0OY?si=W9taPg4C_CnbAYat)
